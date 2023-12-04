@@ -1,10 +1,12 @@
-# IOSkjzf.github.io
-Princess
-# picture
+# Porsche Industries
+Founded by Hendrick Porsche
+# Porsche
+![image](https://github.com/IOSkjzf/IOSkjzf.github.io/assets/150984552/5959ba24-f27c-4870-b779-78f030a8b5fd)
+For some, the question isn’t “How do you pronounce Porsche?”, but rather “What does Porsche mean?” In literal terms, Porsche is a name of German origin that is translated to mean “origins.” Speaking of origins — we must go back to the Porsche brand’s 1947 origins to explain why it’s called “Porsche.” Simply and perhaps predictably, the brand was named after its founder.
+# Pronounciation
+How do you say Porsche? Many Matthews and Indian Trail drivers have asked this exact question. The name of this luxury car brand is often pronounced wrong. So, how is Porsche pronounced? One of the most common pronunciations is “Porsch,” however, this variation is not correct.
 
- ![Facade](https://scontent.xx.fbcdn.net/v/t1.15752-9/405605188_3813093305579298_4204352734970357137_n.jpg?stp=dst-jpg_s526x395&_nc_cat=107&ccb=1-7&_nc_sid=510075&_nc_ohc=aLYBGgIJ2ogAX_oGOHk&_nc_ad=z-m&_nc_cid=0&_nc_ht=scontent.xx&oh=03_AdTS71kHCxzCp9hku_elUgi1QENObPB8HzvHnwieVCKTtw&oe=6594C3CB)
-
-Fave song 
-<iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/38Rfx1KKwQXJmKNCiC7NYP?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+In the proper pronunciation, “Porsche” is actually a two-syllable word. So it is really pronounced like “Por-shuh.” The team at Hendrick Porsche is happy to help you with all of your Porsche questions, including how to say it!
+# History of Porsche
 
 
